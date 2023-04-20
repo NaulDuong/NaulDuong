@@ -7,6 +7,7 @@ Besides that, I am also responsible in my job, self-development, critical-thinki
 Dương Nguyễn Thanh Luân - Data Analyst Intern 
 
 📞: 0943349009 - 0886004424
+
 📧: Derrickduong710@gmail.com
 
 Profile:https://www.linkedin.com/in/derrickduong0710/
