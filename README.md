@@ -2,7 +2,8 @@
 👀 Now I want to change career path from business to DA and I am looking for an opportunity in Data Analyst Intern.
 I am an enthusiastic in technology so that I willing to learn more and work over-time. 
 Besides that, I am also responsible in my job, self-development, critical-thinking.
-📫  I am excited about the opportunity to contribute my skills and experience to your team. Please do not hesitate to contact me if you require any further information.
+
+📫 I am excited about the opportunity to contribute my skills and experience to your team. Please do not hesitate to contact me if you require any further information.
 
 Dương Nguyễn Thanh Luân - Data Analyst Intern 
 
